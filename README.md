@@ -10,6 +10,6 @@ On my GitHub, you'll find a collection of projects that showcase my growing skil
 Let's Connect
 Email: m.saleh.sedeghi@gmail.com
 LinkedIn: www.linkedin.com/in/mohammadsaleh-sedighi
-Telegram: @Mscha03
-Thank you for visiting my GitHub profile!
+Telegram: [@Mscha03](https://telegram.me/Mscha03)
+
 
